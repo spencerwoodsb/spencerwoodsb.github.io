@@ -1,1 +1,1 @@
-# spencerwoodsb.github.io
+Map of my favorite destination
